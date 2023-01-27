@@ -1,1 +1,1 @@
-griffinsclothing.com
+griffins clothing
